@@ -1,4 +1,4 @@
-<img align="center" width=100% src="https://github.com/welingtonwpv/welingtonwpv/assets/39470786/987a7648-27a1-4303-9c3d-4b9c9ff45130"/>
+<img align="center" width=100% src="https://github.com/welingtonwpv/welingtonwpv/assets/39470786/a403eecd-32ec-42ff-8b7f-34392759f05a"/>
 &nbsp;&nbsp;&nbsp;
 
 <div align="center" style="margin-bottom:100px">
